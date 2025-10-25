@@ -1,0 +1,3 @@
+**Berry's** is a chain of small restaurants within the [[Maja-Suma (The Great Pit)]] that serve the catch of the day, fresh and hot, in exchange for gold. Residents might stop in when they’re too tired or ingredient-poor to cook for themselves, but Berry’s restaurants are also hubs for gossip, entertainment, and warnings about what dangerous beasts might be lurking nearby.
+
+> When the PCs are near an open Berry’s Restaurant during their downtime, they can each spend a handful of gold to order food and choose a downtime move to clear Stress, clear Hit Points, or gain Hope. Only 2 handfuls of gold can be spent per PC during downtime.

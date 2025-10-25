@@ -1,0 +1,1 @@
+Created by [[Hylaeus the Forest Mage]] to protect the village of [[Bellmouth]] from monster attacks. Located at the bottom of [[Maja-Suma (The Great Pit)]].

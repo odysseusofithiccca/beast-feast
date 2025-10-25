@@ -1,0 +1,1 @@
+Captain of [[The Stormbringer]]. Mentor and father figure of [[Celeste Crimson]]. Died about a year earlier being struck by lightning on a clear, sunny day.
